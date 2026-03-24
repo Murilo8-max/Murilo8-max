@@ -1,4 +1,4 @@
-## Murilo Oliveira Alves, 19anos
+## Murilo Oliveira Alves, 19 anos
 ## Sou um estudante de Tecnologia, curioso e apaixonado por tudo que envolve sistemas, redes e inovação. Gosto de aprender na prática, resolver problemas e entender como as coisas funcionam. Estou em busca de oportunidades para crescer, contribuir e me desenvolver como profissional.
 
 
